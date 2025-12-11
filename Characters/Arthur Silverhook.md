@@ -1,0 +1,7 @@
+Arthur se despertó en la cubierta de "El filo de las tormentas", donde fue puesto en situación por el capitán [[Jhon Stonejaw]], fue encontrado ensangrentado en un bote a la deriva con sus únicas pertenencias, una bolsa de chips(La moneda del mundo) y un broche de plata con las letras "thur Silver" donde se inspiro para componer su nombre actual, Jhon le dio trabajo en el navío y en cierto modo, una familia. Se enamoro de los estofados de Sally, de las lecciones del viejo Fjord y de las lecciones de duelo con Jhon, donde no ha ganado ni uno aun.
+
+A medida que fue pasando el tiempo, fue disfrutando de las cosas que le aportando el mundo, empezaba a entender el mundo pero no su lugar en el, se fijo que los viento spren que siguen el barco nunca tienen las misma forma ni se mueven igual, menos uno. Era curioso porque de normal ningún spren habla pero este suele hacerlo con el, hablado como si ya lo conociese.
+
+Una noche llegando borracho al camarote, se atraganto e intentando coger aire de repente se encendió en luz celeste, no se sentía borracho y las pequeñas llagas de las manos desaparecieron.
+
+En uno de los puertos mientras dejaba la mercancía de ese día, alguien reconoció la marca en la muñeca y le apunto hacia la capital para ver a busca de pistas de quien fue.
